@@ -1,4 +1,4 @@
-# PROYECTO TIERNO PARA COD
+# PROYECTO Tiernito PARA COD
 >_**Integrantes:**_ <sub>son muy pequeños</sub> **pero tienen grandes ideas**
 >- Ternurin
 >* Ternura
